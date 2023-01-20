@@ -2,7 +2,7 @@
 - 👀 I’m interested in Code
 - 🌱 I’m currently learning Machatronic Eng
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Email: manmonkoa@gmail.com [Linkedin](https://www.linkedin.com/feed/) 
+- 📫 How to reach me Email: manmonkoa@gmail.com [Linkedin](https://www.linkedin.com/in/mongkon-gruaysawad-824774224/) 
 
 
 <!---
